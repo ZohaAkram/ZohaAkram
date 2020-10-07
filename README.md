@@ -8,6 +8,6 @@
   <br>
   
 👉 You can add me on:<br>
-🔵 LinkedIn: @zohaAkram <br> 
-🔴 FaceBook: @zohaakram <br>
+🔵 LinkedIn: https://www.linkedin.com/in/zoha-akram-365202197/ <br> 
+🔴 FaceBook: (https://www.facebook.com/zoha.akram.10/ <br>
 
