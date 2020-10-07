@@ -9,5 +9,5 @@
   
 👉 You can add me on:<br>
 🔵 LinkedIn: https://www.linkedin.com/in/zoha-akram-365202197/ <br> 
-🔴 FaceBook: (https://www.facebook.com/zoha.akram.10/ <br>
+🔴 FaceBook: https://www.facebook.com/zoha.akram.10/ <br>
 
